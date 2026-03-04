@@ -3,6 +3,7 @@
 <p align="center"> >ɴᴏᴛᴇ : ɪ ᴅᴏ ɴᴏᴛ ꜱᴜᴘᴘᴏʀᴛ ᴀɴʏᴛʜɪɴɢ ᴛʜᴀᴛ ᴛʜᴇ ᴀᴅᴍɪɴꜱ ᴏꜰ ᴛᴅᴜ ʜᴀᴠᴇ ᴅᴏɴᴇ , ɪ ꜱᴇᴘᴇʀᴀᴛᴇ ᴀʟʟ ᴏꜰ ᴛʜᴇ ᴏᴘᴇʀᴀᴛɪᴠᴇꜱ ᴀɴᴅ ʟᴇᴀᴅᴇʀꜱ ꜰʀᴏᴍ ᴛʜᴇɪʀ ᴀᴅᴍɪɴ , ꜰᴏʀ ᴛʜᴇʏ ᴀʀᴇ ᴏɴʟʏ ᴄʀᴇᴀᴛɪᴏɴꜱ ᴀɴᴅ ɴᴏᴛ ᴛʜᴇ ᴀᴄᴛᴜᴀʟ ᴀᴅᴍɪɴꜱ .
 
 <p align="center"><img width="100" height="90" src="https://files.catbox.moe/nenpms.webp">
+  <p align="center"> I'm not making a strawpage go to @ AttendantofGod for that bruh .
 <p align="center"> >>``​🇮​ ​🇲​​🇦​​🇾​ ​🇳​​🇴​​🇹​ ​🇧​​🇪​ ​🇦​​🇧​​🇱​​🇪​ ​🇹​​🇴​ ​🇲​​🇦​​🇰​​🇪​ ​🇾​​🇴​​🇺​ ​🇸​​🇲​​🇮​​🇱​​🇪​ , ​🇧​​🇺​​🇹​ ​🇮​’​🇱​​🇱​ ​🇳​​🇪​​🇻​​🇪​​🇷​ ​🇲​​🇦​​🇰​​🇪​ ​🇾​​🇴​​🇺​ ​🇨​​🇷​​🇾​ ​🇪​​🇻​​🇪​​🇳​ ​🇴​​🇳​​🇨​​🇪​ , ​🇳​​🇪​​🇻​​🇪​​🇷​ .``<img width="50" height="90" src="https://64.media.tumblr.com/5f47f32704fed786d688bb7dddee2faa/946f28fa099a83ea-11/s2048x3072/466d0e30ec439bea7967afcd880d2db152efef2f.pnj">
 <p align="center"><img width="356" height="432" src="https://files.catbox.moe/tjaqhc.png"> </p>
 <p align="center"> >𝙺𝚗𝚘𝚠𝚗 𝚊𝚜: 𝚅𝙴𝙴 , 𝚂𝙸𝙽𝙺𝙸𝙽𝙶_𝙳𝙰𝚈 , 𝚁𝚇78 .
