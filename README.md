@@ -3,7 +3,7 @@
 <p align="center"> >ɴᴏᴛᴇ : ɪ ᴅᴏ ɴᴏᴛ ꜱᴜᴘᴘᴏʀᴛ ᴀɴʏᴛʜɪɴɢ ᴛʜᴀᴛ ᴛʜᴇ ᴀᴅᴍɪɴꜱ ᴏꜰ ᴛᴅᴜ ʜᴀᴠᴇ ᴅᴏɴᴇ , ɪ ꜱᴇᴘᴇʀᴀᴛᴇ ᴀʟʟ ᴏꜰ ᴛʜᴇ ᴏᴘᴇʀᴀᴛɪᴠᴇꜱ ᴀɴᴅ ʟᴇᴀᴅᴇʀꜱ ꜰʀᴏᴍ ᴛʜᴇɪʀ ᴀᴅᴍɪɴ , ꜰᴏʀ ᴛʜᴇʏ ᴀʀᴇ ᴏɴʟʏ ᴄʀᴇᴀᴛɪᴏɴꜱ ᴀɴᴅ ɴᴏᴛ ᴛʜᴇ ᴀᴄᴛᴜᴀʟ ᴀᴅᴍɪɴꜱ .
 
 <p align="center"><img width="100" height="90" src="https://files.catbox.moe/nenpms.webp">
-<p align="center"> >>``𝚃𝚑𝚎 𝚜𝚘𝚞𝚗𝚍 𝚝𝚑𝚊𝚝 𝚎𝚌𝚑𝚘𝚎𝚜 𝚒𝚗 𝚖𝚢 𝚑𝚎𝚊𝚍 𝚒𝚜 𝚕𝚒𝚔𝚎 𝚠𝚑𝚒𝚝𝚎 𝚗𝚘𝚒𝚜𝚎.``<img width="50" height="90" src="https://64.media.tumblr.com/5f47f32704fed786d688bb7dddee2faa/946f28fa099a83ea-11/s2048x3072/466d0e30ec439bea7967afcd880d2db152efef2f.pnj">
+<p align="center"> >>``​🇮​ ​🇲​​🇦​​🇾​ ​🇳​​🇴​​🇹​ ​🇧​​🇪​ ​🇦​​🇧​​🇱​​🇪​ ​🇹​​🇴​ ​🇲​​🇦​​🇰​​🇪​ ​🇾​​🇴​​🇺​ ​🇸​​🇲​​🇮​​🇱​​🇪​ , ​🇧​​🇺​​🇹​ ​🇮​’​🇱​​🇱​ ​🇳​​🇪​​🇻​​🇪​​🇷​ ​🇲​​🇦​​🇰​​🇪​ ​🇾​​🇴​​🇺​ ​🇨​​🇷​​🇾​ ​🇪​​🇻​​🇪​​🇳​ ​🇴​​🇳​​🇨​​🇪​ , ​🇳​​🇪​​🇻​​🇪​​🇷​ .``<img width="50" height="90" src="https://64.media.tumblr.com/5f47f32704fed786d688bb7dddee2faa/946f28fa099a83ea-11/s2048x3072/466d0e30ec439bea7967afcd880d2db152efef2f.pnj">
 <p align="center"><img width="356" height="432" src="https://files.catbox.moe/tjaqhc.png"> </p>
 <p align="center"> >𝙺𝚗𝚘𝚠𝚗 𝚊𝚜: 𝚅𝙴𝙴 , 𝚂𝙸𝙽𝙺𝙸𝙽𝙶_𝙳𝙰𝚈 , 𝚁𝚇78 .
   <p align="center"> >𝙱𝙳𝙰𝚈: 𝟷𝟷/𝟷𝟾 . 𝙼𝙸𝙽𝙾𝚁 .
@@ -18,6 +18,7 @@
     <p align="left"> >​🇲​​🇭​​🇦​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ .
       <p align="left"> >ɪ ᴅᴏ ɴᴏᴛ ᴀɴᴅ ᴡɪꜱʜ ᴛᴏ ɴᴇᴠᴇʀ ʙᴇ ᴀꜱꜱᴜᴍᴇᴅ ɪ ꜱʜɪᴘ ɢʀᴇᴀᴛ ᴀɴᴅ ᴇᴍᴏᴛɪᴏɴʟᴇꜱꜱ , ɪ ᴠɪᴇᴡ ɪᴛ ᴀꜱ ɪꜱ , ᴡᴏʀᴋ ᴘᴀʀᴛɴᴇʀꜱ . ɴᴏᴛʜɪɴɢ ᴇʟꜱᴇ . ɴᴏ ᴍᴀᴛᴛᴇʀ ᴡʜᴀᴛ ᴀɴʏᴛʜɪɴɢ ꜱᴀʏꜱ , ɪ ᴅᴏ ɴᴏᴛ ꜱʜɪᴘ ᴀɴʏ ᴏᴘᴇʀᴀᴛɪᴠᴇꜱ ᴡɪᴛʜ ɢʀᴇᴀᴛ ᴏʀ ᴇᴀᴄʜ ᴏᴛʜᴇʀ .
 <p align="center"><img width="250" height="300" src="https://64.media.tumblr.com/7cdd67a4491dd5203b7851bd849bcc0c/5ed4b30f05dc02ce-83/s100x200/2beee8aadc6a1be9c91639b03fbbe30bca2ae595.gifv"> </p>
+<p align="center"> >>``​🇮​ ​🇸​​🇹​​🇷​​🇺​​🇬​​🇬​​🇱​​🇪​​🇩​ ​🇹​​🇴​ ​🇬​​🇴​ ​🇴​​🇺​​🇹​​🇸​​🇮​​🇩​​🇪​ ​🇹​​🇭​​🇪​ ​🇨​​🇮​​🇷​​🇨​​🇱​​🇪​ . .``<img width="50" height="90" src="https://64.media.tumblr.com/0e11917f3bd8fe148a5e290c64bbe890/23c129598151ff1b-a8/s2048x3072/27ec82dd055ecd63b72d8667d61e544bc8025ffa.pnj">
 <p align="right"> <img width="50" height="90" src="https://64.media.tumblr.com/ff1b50dbbb4651b9161a4ffc948c6123/048fa08e34757f99-bc/s1280x1920/e48443fdf15e27d046d4cab2c955b6afe486d9ca.pnj"> >>ʟɪᴋᴇꜱ/ɪɴᴛ
 <p align="right"> >ɢᴜɴᴅᴀᴍ , ᴛʀᴀɴꜱꜰᴏʀᴍᴇʀꜱ , ᴇᴠᴀɴɢᴇʟɪᴏɴ
 <p align="right"> >ᴜᴍᴀᴍᴜꜱᴜᴍᴇ , ʜᴏʀꜱᴇꜱ ɪɴ ɢᴇɴᴇʀᴀʟ
@@ -26,7 +27,7 @@
 <p align="right"> >ᴠᴏᴄᴀʟᴏɪᴅ , ꜰɴꜰ [ꜱᴘᴇᴄɪꜰɪᴄᴀʟʟʏ ᴅᴇᴀᴅ ᴀɪʀ]
 <p align="right"> >​🇫​​🇴​​🇷​​🇸​​🇦​​🇰​​🇪​​🇳​ , ​🇧​​🇺​​🇹​ ​🇳​​🇴​​🇹​ ​🇹​​🇭​​🇪​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ , ​🇴​​🇳​​🇱​​🇾​ ​🇹​​🇭​​🇪​ ​🇬​​🇦​​🇲​​🇪​ .
 <p align="center"><img width="299" height="309" src="https://files.catbox.moe/phlxyq.png">
-<p align="center"> >>``​​𝙼𝚢 𝚑𝚎𝚊𝚛𝚝 𝚒𝚜 𝚋𝚎𝚒𝚗𝚐 𝚜𝚠𝚊𝚕𝚕𝚘𝚠𝚎𝚍 𝚞𝚙 𝚊𝚜 𝚒𝚏 𝙸'𝚟𝚎 𝚜𝚝𝚎𝚙𝚙𝚎𝚍 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚑𝚎 𝚠𝚊𝚢.``<img width="50" height="90" src="https://64.media.tumblr.com/bd16b67ffc58ea81d325ebdd847e404c/2836a37a1e129717-e1/s540x810/fdaae4a08ceadd35274162eefea12d5989f1da13.pnj">
+<p align="center"> >>``​​​🇨​​🇴​​🇺​​🇳​​🇹​​🇪​​🇷​​🇪​​🇩​ ​🇼​​🇮​​🇹​​🇭​ ​🇦​ ​🇲​​🇮​​🇱​​🇱​​🇮​​🇴​​🇳​ ​🇦​​🇳​​🇩​ ​🇹​​🇭​​🇦​​🇹​ ​🇲​​🇪​​🇦​​🇳​​🇸​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇼​​🇮​​🇱​​🇱​ ​🇨​​🇴​​🇲​​🇪​ ​🇹​​🇴​ ​🇾​​🇴​​🇺​ ​🇼​​🇮​​🇹​​🇭​​🇴​​🇺​​🇹​ ​🇦​ ​🇸​​🇪​​🇨​​🇴​​🇳​​🇩​ ​🇹​​🇭​​🇴​​🇺​​🇬​​🇭​​🇹​ .``<img width="50" height="90" src="https://64.media.tumblr.com/bd16b67ffc58ea81d325ebdd847e404c/2836a37a1e129717-e1/s540x810/fdaae4a08ceadd35274162eefea12d5989f1da13.pnj">
  <p align="center"> <img width="100" height="50" src="https://64.media.tumblr.com/65cf2ac84d0d5d1c6cf76b4a4ad83425/6f669be85b9fdd3f-e1/s250x400/75dd312c9385e8e56b73291c5ab6c7e46576e1d7.gifv"><img width="100" height="50" src="https://64.media.tumblr.com/0df6b6c053324b9afc72b392c1b1f024/6f669be85b9fdd3f-49/s250x400/30fa230b4b059b68da2312d6d93d567ed77a15b1.gifv">
 <p align="center"> <a href="https://www.patreon.com/posts/story-of-call-of-151759610?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=postshare_creator&utm_content=join_link">Woahhoahhoahhhaohh aoohhh woaahhh Story of Call of Duty</a> 
 <p align="center"><img width="250" height="300" src="https://64.media.tumblr.com/8cfd3353603429ecb9970226247ac68d/34770fe90a786efd-e6/s100x200/1db57f30df4c48f22b8047e0877f8b1ddcbe2b8d.pnj">
