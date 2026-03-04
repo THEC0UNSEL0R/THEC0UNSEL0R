@@ -6,7 +6,7 @@
   <p align="center"> I'm not making a strawpage go to @ AttendantofGod for that bruh .
 <p align="center"> >>``​🇮​ ​🇲​​🇦​​🇾​ ​🇳​​🇴​​🇹​ ​🇧​​🇪​ ​🇦​​🇧​​🇱​​🇪​ ​🇹​​🇴​ ​🇲​​🇦​​🇰​​🇪​ ​🇾​​🇴​​🇺​ ​🇸​​🇲​​🇮​​🇱​​🇪​ , ​🇧​​🇺​​🇹​ ​🇮​’​🇱​​🇱​ ​🇳​​🇪​​🇻​​🇪​​🇷​ ​🇲​​🇦​​🇰​​🇪​ ​🇾​​🇴​​🇺​ ​🇨​​🇷​​🇾​ ​🇪​​🇻​​🇪​​🇳​ ​🇴​​🇳​​🇨​​🇪​ , ​🇳​​🇪​​🇻​​🇪​​🇷​ .``<img width="50" height="90" src="https://64.media.tumblr.com/5f47f32704fed786d688bb7dddee2faa/946f28fa099a83ea-11/s2048x3072/466d0e30ec439bea7967afcd880d2db152efef2f.pnj">
 <p align="center"><img width="356" height="432" src="https://files.catbox.moe/tjaqhc.png"> </p>
-<p align="center"> >𝙺𝚗𝚘𝚠𝚗 𝚊𝚜: 𝚅𝙴𝙴 , 𝚂𝙸𝙽𝙺𝙸𝙽𝙶_𝙳𝙰𝚈 , 𝚁𝚇78 .
+<p align="center"> >𝙺𝚗𝚘𝚠𝚗 𝚊𝚜: 𝚅𝙴𝙴 , 𝚂𝙸𝙽𝙺𝙸𝙽𝙶_𝙳𝙰𝚈 .
   <p align="center"> >𝙱𝙳𝙰𝚈: 𝟷𝟷/𝟷𝟾 . 𝙼𝙸𝙽𝙾𝚁 .
 <p align="center"><img width="250" height="300" src="https://64.media.tumblr.com/ad2b883aec60bbee78ba713c9a81ec7a/5ed4b30f05dc02ce-16/s100x200/1cc0ab49226359425b9c9c3a0fa1023a64bd749d.gifv"> </p>
 <p align="left"> <img width="50" height="90" src="https://64.media.tumblr.com/1ccd7650adc64df8e8692941ff17ad3d/048fa08e34757f99-a2/s1280x1920/45afa00911254eab8b3bc2d885fdb2c7433a9fc8.pnj"> >>𝘋𝘕𝘐:
