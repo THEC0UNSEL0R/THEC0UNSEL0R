@@ -3,7 +3,7 @@
 <p align="center">𝙼𝙰𝙺𝙸𝙽𝙶 𝙰 𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴 𝚂𝙾𝙾𝙽 ... 𝙸 𝙿𝚁𝙾𝙼𝙸𝚂𝙴 ...
 
 <p align="center"><img width="100" height="90" src="https://files.catbox.moe/nenpms.webp">
-  <p align="center"> I'm not making a strawpage go to @ AttendantofGod for that bruh .
+  <p align="center"> 𝟹𝙵𝚂 𝚂𝚃𝙰𝙼𝙿 𝙱𝚈 : 𝙺𝙸𝙴𝚁𝙰𝙽 !
 <p align="center"> >>``​🇮​ ​🇲​​🇦​​🇾​ ​🇳​​🇴​​🇹​ ​🇧​​🇪​ ​🇦​​🇧​​🇱​​🇪​ ​🇹​​🇴​ ​🇲​​🇦​​🇰​​🇪​ ​🇾​​🇴​​🇺​ ​🇸​​🇲​​🇮​​🇱​​🇪​ , ​🇧​​🇺​​🇹​ ​🇮​’​🇱​​🇱​ ​🇳​​🇪​​🇻​​🇪​​🇷​ ​🇲​​🇦​​🇰​​🇪​ ​🇾​​🇴​​🇺​ ​🇨​​🇷​​🇾​ ​🇪​​🇻​​🇪​​🇳​ ​🇴​​🇳​​🇨​​🇪​ , ​🇳​​🇪​​🇻​​🇪​​🇷​ .``<img width="50" height="40" src="https://64.media.tumblr.com/e067ff9f9832675487084f115d85546e/8a50e518839998ba-63/s1280x1920/9c5a5230eabc4a2c48e5c8366f543567f4523e2d.jpg">
 <p align="center"><img width="356" height="432" src="https://i.pinimg.com/736x/ff/6b/a7/ff6ba72d93899eb00982844916474df8.jpg"> </p>
 <p align="center"> >𝙺𝚗𝚘𝚠𝚗 𝚊𝚜: 𝚅𝙴𝙴 , 𝚂𝙸𝙽𝙺𝙸𝙽𝙶_𝙳𝙰𝚈 .
